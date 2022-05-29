@@ -1,1 +1,0 @@
-# seyistry.github.io
